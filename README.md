@@ -8,8 +8,6 @@
 - 🥅 2022 Goals: Learn more about java
 - ⚡ Fun fact: I love to play football
 
-<br />
-
 ---
 
 ### 📕 Latest Posts
