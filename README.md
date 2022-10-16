@@ -1,4 +1,4 @@
-# Hi there, I'm Piyush - aka [PIYUSH] 👋 
+# Hi there, I'm Piyush 👋 
 
 
 ## I'm a student!
